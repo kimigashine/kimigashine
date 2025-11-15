@@ -1,1 +1,4 @@
-![by-記録用-synthv](https://github.com/user-attachments/assets/bd0b6675-cae2-4c69-bfc0-0572cd753f1f) she is my queen
+![88cd178a-43d4-4cb9-9a5f-b406e7c066f0](https://github.com/user-attachments/assets/745d5e36-4dd7-41bd-a3d9-d7b263aa31ec)
+
+<p/>
+exposes myself
